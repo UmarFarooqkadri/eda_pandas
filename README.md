@@ -7,5 +7,4 @@ Below is the youtub link for the video tutorial:
 
 You can also watch a more detailed video at:
 
-https://www.youtube.com/watch?v=EaGbS7eWSs0&list=PL9KIU47aF2geqWVzThUxHf7zRCK6W-6KX&index=1
-
+https://www.youtube.com/watch?v=Xq9fKp_m6ZE&list=PL9KIU47aF2gdDcl1VYjNToekCOdISQLwt
